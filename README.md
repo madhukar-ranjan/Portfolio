@@ -21,3 +21,5 @@ Collaborated with cross-functional teams to achieve project milestones
 I am passionate about staying up-to-date with the latest industry trends and technologies, ensuring that the solutions I deliver align with the best practices in web development.
 
 Feel free to connect with me to discuss potential collaborations or to explore how my skills can contribute to your projects.
+![image](https://github.com/madhukar-ranjan/Portfolio/assets/143316873/5ddf2d2c-8008-4a00-89dc-01a2adc0cdfb)
+
