@@ -23,3 +23,6 @@ I am passionate about staying up-to-date with the latest industry trends and tec
 Feel free to connect with me to discuss potential collaborations or to explore how my skills can contribute to your projects.
 ![image](https://github.com/madhukar-ranjan/Portfolio/assets/143316873/5ddf2d2c-8008-4a00-89dc-01a2adc0cdfb)
 
+![image](https://github.com/madhukar-ranjan/Portfolio/assets/143316873/880648e1-569c-4ad5-86f4-608bf616f037)
+
+
